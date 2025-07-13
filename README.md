@@ -83,11 +83,6 @@ Name: united arab emirate
 Capital: abu dhabi
 
 
-
-\## 💭 Refleksi Singkat
-
-
-
 4\. Kendala
 
 
